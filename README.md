@@ -1,0 +1,1 @@
+# WiseFoolsPrivate.github.io
